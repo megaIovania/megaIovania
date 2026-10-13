@@ -5,7 +5,7 @@
 
  ![](https://komarev.com/ghpvc/?username=valendie&label=　　　GRUNTS　　　&style=for-the-badge&color=ff0000)
 
-$\color{#989898}{\textsf{ art⠀⠀is　by　}}$  [sunbeamgoobr83](https://www.tumblr.com/sunbeamgoobr83)  $\color{#474747}{\textsf{ on　tumblr !!　}}$
+$\color{#989898}{\textsf{ art⠀⠀is　by　}}$  [sunbeamgoobr83](https://x.com/reddddd89578855/status/1604095009497960449?s=61)  $\color{#474747}{\textsf{ on　twitter　}}$
 
 
   
