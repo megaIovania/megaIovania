@@ -5,7 +5,7 @@
 
  ![](https://komarev.com/ghpvc/?username=valendie&label=　　　GRUNTS　　　&style=for-the-badge&color=ff0000)
 
-$\color{#989898}{\textsf{ art⠀⠀is　by　}}$  [sunbeamgoobr83](https://x.com/reddddd89578855/status/1604095009497960449?s=61)  $\color{#474747}{\textsf{ on　twitter　}}$
+$\color{#989898}{\textsf{ art⠀⠀is　by　}}$  [@reddddd89578855](https://x.com/reddddd89578855/status/1604095009497960449?s=61)  $\color{#474747}{\textsf{ on　twitter　}}$
 
 
   
@@ -22,7 +22,7 @@ $\color{#474747}{\textsf{ 　　feel　free　𓂃　　to chat 、int　　  
 
 <br/>
 
-$\color{#989898}{\textsf{ somewhere }}$ $\color{#474747}{\textsf{ in }}$ $\color{#ff0000}{\textsf{ Nevada }}$ $\color{#989898}{\textsf{ … }}$
+$\color{#989898}{\textsf{ “ somewhere }}$ $\color{#474747}{\textsf{ in }}$ $\color{#ff0000}{\textsf{ Nevada }}$ $\color{#989898}{\textsf{ … “ }}$
   
 <br/>
 
