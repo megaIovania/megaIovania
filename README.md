@@ -3,37 +3,30 @@
 
 
 
- ![](https://komarev.com/ghpvc/?username=valendie&label=　　　RADS　　　&style=for-the-badge&color=ff49a1)
+ ![](https://komarev.com/ghpvc/?username=valendie&label=　　　GRUNTS　　　&style=for-the-badge&color=ff0000)
 
-$\color{#FF439D}{\textsf{ art⠀⠀is　by　}}$  [sunbeamgoobr83](https://www.tumblr.com/sunbeamgoobr83)  $\color{#99E9AC}{\textsf{ on　tumblr !!　}}$
+$\color{#989898}{\textsf{ art⠀⠀is　by　}}$  [sunbeamgoobr83](https://www.tumblr.com/sunbeamgoobr83)  $\color{#474747}{\textsf{ on　tumblr !!　}}$
 
 
   
-<p align="center"><img width="750" src="https://github.com/user-attachments/assets/d60b7c73-3574-492b-a4a6-46e109e689e9" /></p>
+<p align="center"><img width="750" src="https://github.com/user-attachments/assets/bc9f2861-ab37-4519-a551-15a2c98459d6" /></p>
 
 
-$\color{#⠀ ⠀ }{\textsf{⠀  ﹕}}$⠀ ⠀ $\color{#FF49A1}{\textsf{valentine}}$ ⠀  ⠀ $\color{#8899DB}{\textsf{or}}$ ⠀ $\color{#FFB3C3}{\textsf{val}}$ ⠀ $\color{#9AEBAA}{\textsf{ུ ❃۪  }}$ ⠀  ⠀ ⠀ $\color{#D843B5}{\textsf{15}}$ $\color{#8899DB}{\textsf{y}}$⠀ $\color{#ffffff}{\textsf{ུ.}}$
+
+$\color{#⠀ ⠀ }{\textsf{⠀  ﹕}}$⠀ ⠀ $\color{#ff0000}{\textsf{valentine}}$ ⠀  ⠀ $\color{#989898}{\textsf{or}}$ ⠀ $\color{#474747}{\textsf{val}}$ ⠀ $\color{#474747}{\textsf{ུ ❃۪  }}$ ⠀  ⠀ ⠀ $\color{#ff0000}{\textsf{15}}$ $\color{#474747}{\textsf{y}}$⠀ $\color{#ffffff}{\textsf{ུ.}}$
 <br/>
-$\color{#71F7C9}{\textsf{heavy}}$⠀ $\color{#EFF6C1}{\textsf{ུʚɞ}}$ ⠀ $\color{#FFDDA9}{\textsf{⠀cudscomf}}$ ⠀ $\color{#ffffff}{\textsf{／}}$⠀ ⠀ $\color{#FDF3A0}{\textsf{w2i}}$ ⠀ ⠀ $\color{#D4FE9E}{\textsf{recommended}}$
-<br/>
-
-$\color{#A3CAF7}{\textsf{ 　　feel　free　𓂃　　to chat 、int　　  }}$　 $\color{#FEB4C1}{\textsf{৻ꪆ}}$
-
+$\color{#ff0000}{\textsf{heavy}}$⠀ $\color{#989898}{\textsf{ུʚɞ}}$ ⠀ $\color{#474747}{\textsf{⠀cudscomf}}$ ⠀ $\color{#ffffff}{\textsf{／}}$⠀ ⠀ $\color{#989898}{\textsf{w2i}}$ ⠀ ⠀ $\color{#ff0000}{\textsf{recommended}}$
 <br/>
 
-$\color{#8899DB}{\textsf{ Y }}$ $\color{#FDF3A0}{\textsf{ O }}$ $\color{#8899DB}{\textsf{ L }}$ $\color{#FDF3A0}{\textsf{ O }}$
+$\color{#474747}{\textsf{ 　　feel　free　𓂃　　to chat 、int　　  }}$　 $\color{#ff0000}{\textsf{৻ꪆ}}$
+
+<br/>
+
+$\color{#989898}{\textsf{ somewhere }}$ $\color{#474747}{\textsf{ in }}$ $\color{#ff0000}{\textsf{ Nevada }}$ $\color{#989898}{\textsf{ … }}$
   
 <br/>
 
 [rentry](https://rentry.co/underrtale) 　[ata](https://undertaie.atabook.org/)　　[pronouns](https://en.pronouns.page/@undertaIe)　　[my arts](https://do-lt.straw.page)
-
-$\color{#ffffff}{\textsf{ lip }}$ $\color{#ffffff}{\textsf{ sync }}$ $\color{#ffffff}{\textsf{ practice }}$ $\color{#ffffff}{\textsf{ haha }}$ $\color{#ffffff}{\textsf{ wip }}$
-<br/>
-$\color{#ffffff}{\textsf{ everyone }}$ $\color{#ffffff}{\textsf{ is }}$ $\color{#ff0000}{\textsf{ DOOMED }}$ $\color{#fffff}{\textsf{ once }}$ $\color{#ffffff}{\textsf{ i }}$ $\color{#ffffff}{\textsf{ know }}$ $\color{#ffffff}{\textsf{ how }}$ $\color{#ffffff}{\textsf{ to }}$ $\color{#ffffff}{\textsf{ animate }}$ $\color{#ffffff}{\textsf{ frame }}$ $\color{#ffffff}{\textsf{ by }}$ $\color{#ffffff}{\textsf{ frame }}$ 
-
-
-
-https://github.com/user-attachments/assets/ddc805b1-d89c-4dd9-8d68-090081c7bf99
 
 
 
