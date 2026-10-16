@@ -3,7 +3,7 @@
 
 
 
- ![](https://komarev.com/ghpvc/?username=valendie&label=　　　ROBLOXIANS　　　&style=for-the-badge&color=FF0042)
+ ![](https://komarev.com/ghpvc/?username=valendie&label=　　　ROBLOXIANS　　　&style=for-the-badge&color=3D2549)
 
 
 
