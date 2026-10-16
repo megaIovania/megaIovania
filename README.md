@@ -3,9 +3,9 @@
 
 
 
- ![](https://komarev.com/ghpvc/?username=valendie&label=　　　ROBLOXIANS　　　&style=for-the-badge&color=ff0000)
+ ![](https://komarev.com/ghpvc/?username=valendie&label=　　　ROBLOXIANS　　　&style=for-the-badge&color=FF0042)
 
-$\color{#989898}{\textsf{ art⠀⠀is　by　}}$  [@reddddd89578855](https://x.com/reddddd89578855/status/1604095009497960449?s=61)  $\color{#474747}{\textsf{ on　twitter　}}$
+
 
 
   
@@ -13,16 +13,16 @@ $\color{#989898}{\textsf{ art⠀⠀is　by　}}$  [@reddddd89578855](https://x.c
 
 
 
-$\color{#⠀ ⠀ }{\textsf{⠀  ﹕}}$⠀ ⠀ $\color{#ff0000}{\textsf{valentine}}$ ⠀  ⠀ $\color{#989898}{\textsf{or}}$ ⠀ $\color{#474747}{\textsf{val}}$ ⠀ $\color{#474747}{\textsf{ུ ❃۪  }}$ ⠀  ⠀ ⠀ $\color{#ff0000}{\textsf{15}}$ $\color{#474747}{\textsf{y}}$⠀ $\color{#ffffff}{\textsf{ུ.}}$
+$\color{#⠀ ⠀ }{\textsf{⠀  ﹕}}$⠀ ⠀ $\color{#FF0042}{\textsf{valentine}}$ ⠀  ⠀ $\color{#A2F9FE}{\textsf{or}}$ ⠀ $\color{#5369FC}{\textsf{val}}$ ⠀ $\color{#5369FC}{\textsf{ུ ❃۪  }}$ ⠀  ⠀ ⠀ $\color{#FF0042}{\textsf{15}}$ $\color{#5369FC}{\textsf{y}}$⠀ $\color{#ffffff}{\textsf{ུ.}}$
 <br/>
-$\color{#ff0000}{\textsf{heavy}}$⠀ $\color{#989898}{\textsf{ུʚɞ}}$ ⠀ $\color{#474747}{\textsf{⠀cudscomf}}$ ⠀ $\color{#ffffff}{\textsf{／}}$⠀ ⠀ $\color{#989898}{\textsf{w2i}}$ ⠀ ⠀ $\color{#ff0000}{\textsf{recommended}}$
-<br/>
-
-$\color{#474747}{\textsf{ 　　feel　free　𓂃　　to chat 、int　　  }}$　 $\color{#ff0000}{\textsf{৻ꪆ}}$
-
+$\color{#FF0042}{\textsf{heavy}}$⠀ $\color{#A2F9FE}{\textsf{ུʚɞ}}$ ⠀ $\color{#5369FC}{\textsf{⠀cudscomf}}$ ⠀ $\color{#ffffff}{\textsf{／}}$⠀ ⠀ $\color{#A2F9FE}{\textsf{w2i}}$ ⠀ ⠀ $\color{#FF0042}{\textsf{recommended}}$
 <br/>
 
-$\color{#989898}{\textsf{ “ somewhere }}$ $\color{#474747}{\textsf{ in }}$ $\color{#ff0000}{\textsf{ Nevada }}$ $\color{#989898}{\textsf{ … “ }}$
+$\color{#FF0042}{\textsf{feel}}$⠀ $\color{#A2F9FE}{\textsf{ུfree}}$ ⠀ $\color{#5369FC}{\textsf{⠀to}}$⠀ $\color{#FF0042}{\textsf{chat}}$⠀ $\color{#A2F9FE}{\textsf{ུ𓂃}}$ ⠀ $\color{#5369FC}{\textsf{⠀int}}$⠀৻ꪆ
+
+<br/>
+
+$\color{#A2F9FE}{\textsf{ “ clock }}$ $\color{#5369FC}{\textsf{ work, }}$ $\color{#FF0042}{\textsf{ work }}$ $\color{#A2F9FE}{\textsf{ wise “ }}$
   
 <br/>
 
