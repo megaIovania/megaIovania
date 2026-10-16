@@ -3,13 +3,13 @@
 
 
 
- ![](https://komarev.com/ghpvc/?username=valendie&label=　　　GRUNTS　　　&style=for-the-badge&color=ff0000)
+ ![](https://komarev.com/ghpvc/?username=valendie&label=　　　ROBLOXIANS　　　&style=for-the-badge&color=ff0000)
 
 $\color{#989898}{\textsf{ art⠀⠀is　by　}}$  [@reddddd89578855](https://x.com/reddddd89578855/status/1604095009497960449?s=61)  $\color{#474747}{\textsf{ on　twitter　}}$
 
 
   
-<p align="center"><img width="750" src="https://github.com/user-attachments/assets/bc9f2861-ab37-4519-a551-15a2c98459d6" /></p>
+<p align="center"><img width="750" src="https://github.com/user-attachments/assets/07cdaa2c-5953-49b5-be5e-e862c4d98c5b" /></p>
 
 
 
