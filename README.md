@@ -5,10 +5,9 @@
 
  ![](https://komarev.com/ghpvc/?username=valendie&label=　　　ROBLOXIANS　　　&style=for-the-badge&color=3D2549)
 
+$\color{#fffff}{\textsf{ art⠀⠀is　by　}}$  [sunbeamgoobr83](https://www.tumblr.com/sunbeamgoobr83)  $\color{#99E9AC}{\textsf{ on　pinterest !!　}}$
 
 
-
-  
 <p align="center"><img width="750" src="https://github.com/user-attachments/assets/cb12170d-a2dc-4ac0-82fe-101cf1c93883" /></p>
 
 
