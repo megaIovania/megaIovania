@@ -5,7 +5,7 @@
 
  ![](https://komarev.com/ghpvc/?username=valendie&label=　　　DROIDS　　　&style=for-the-badge&color=FFD749)
 
-$\color{#FFD749}{\textsf{ art}}$⠀⠀$\color{#ffffff}{\is　by　}}$  [@Tygerler](https://x.com/tygerler/status/2003259874243936713?s=61)  $\color{#ffffff}{\textsf{ on　x !!　}}$
+$\color{#FFD749}{\textsf{ art⠀is　by}}$  [@Tygerler](https://x.com/tygerler/status/2003259874243936713?s=61)  $\color{#ffffff}{\textsf{ on　x !!　}}$
 
 
 <p align="center"><img width="750" src="https://github.com/user-attachments/assets/7fd75459-ea1b-4a88-9cd8-1695e3d87ec5" /></p>
